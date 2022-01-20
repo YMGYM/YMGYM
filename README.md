@@ -8,7 +8,7 @@
 
 - ✏️ Interested In : **Machine Learning, Web Backend**     
 - ☕ Hobby : **Music, Anime, Game, Coffee and Tea**  
-- ⚡ Activity : **(Notion)[https://ymgym.notion.site/An-Min-Jun-a53c349ecea7424dbb7f2e9b6bc38aca]**  
+- ⚡ Activity : **[Notion](https://ymgym.notion.site/An-Min-Jun-a53c349ecea7424dbb7f2e9b6bc38aca)**  
   
 
 <br/>  
